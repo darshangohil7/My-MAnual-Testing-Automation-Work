@@ -1,1 +1,0 @@
-# My-MAnual-Testing-Automation-Work
